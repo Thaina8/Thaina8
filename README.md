@@ -9,4 +9,5 @@ Meu nome é Thainá
 ### Você pode entrar em contato comigo 📱💻🖥️
 
 📫00001107108378sp@al.educacao.sp.gov.br
+
 📱@thaina._.paiva
