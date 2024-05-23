@@ -12,4 +12,4 @@ Meu nome é Thainá
 
 📱@thaina._.paiva
 
-![](https://pa1.aminoapps.com/6742/4bb9e87a2a1d74f252497b25280a9c07558f1899_00.gif)
+![](https://static.wikia.nocookie.net/7b488a78-ac3d-413b-b36a-abf7f1740258/scale-to-width/755)
